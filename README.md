@@ -1,1 +1,1 @@
-# CosMoxTheLegend.github.io-
+# CosMoxTheLegend.github.io
